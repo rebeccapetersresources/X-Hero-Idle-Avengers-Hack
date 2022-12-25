@@ -2,7 +2,7 @@
 
 # X-Hero Idle Avengers Hack 2022 Cheats Generator Unlimited Gems and Gold and more
 
-[Click Here For X-Hero Idle Avengers Gems and Gold Generator](https://gamergeek.xyz/cofb/)
+[Click Here For X-Hero Idle Avengers Gems and Gold Generator](https://gamergeek.xyz/xhifb/)
 
 ----
 
